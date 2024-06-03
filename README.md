@@ -1,1 +1,1 @@
-oye bruno tu ere povre
+ola
